@@ -1,0 +1,1 @@
+{"Version":"1.2","Url":"https://dindaengvpn.xyz/DINVPN.zip","Text":"อัพเดท 16 ตุลาคม 2566"}
